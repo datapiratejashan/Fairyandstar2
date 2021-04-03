@@ -1,1 +1,1 @@
-# Fairyandstar2
+# fairy-and-the-star
